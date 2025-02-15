@@ -1,1 +1,1 @@
-ы# fluffy-lamp
+вы# fluffy-lamp
